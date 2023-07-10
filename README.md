@@ -1,1 +1,1 @@
-https://zangazaga.github.io/rsschool-cv/index.html
+https://zangazaga.github.io/rsschool-cv/
